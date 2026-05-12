@@ -1,4 +1,4 @@
-# 
+# updated dexscreener sniper bot | flash-loan-arbitrage + honeypot-detection is the best dexscreener sniper bot, featuring flash-loan-arbitrage and honeypot-detection. Fast, smart,
 
 
 
